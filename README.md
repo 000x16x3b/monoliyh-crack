@@ -1,4 +1,4 @@
-# monoliyh-crack
+# monolith-crack
 (ENG)Hello/(TR)Merhaba
 
 (ENG)firs copy This for no crash MinikAyicuhV5/(TR)ilk önçe MinikAyicuhV5 i kopyalayin eğer kopyalamasaniz crash yersiniz yani günçel değil uyarisi
